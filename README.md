@@ -1,0 +1,12 @@
+- 👋 wsg, i’m @DynedL/Dyned
+- i'm just writing stuff on my mind :)
+- i do stuff
+- currently a *very* amateur coder
+- i play games
+- marvel/spider-man is amazing
+- stranger things/b99 is my fav show
+- i dont watch anime but my fav anime is erased
+- my fav comic is spider-men (just all of them)
+- my discord is dyn#0420 idk why u wanna msg me or something
+- my favourite book is prolly percy jackson
+epic :D

@@ -9,4 +9,4 @@
 - my fav comic is spider-men (just all of them)
 - my discord is dyn#0420 idk why u wanna msg me or something
 - my favourite book is prolly percy jackson
-epic :D
+- am very epico B)
